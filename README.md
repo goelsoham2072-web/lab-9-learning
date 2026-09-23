@@ -1,1 +1,1 @@
-# lab-9-learning
+Day 9 Lab 9 explores marketing copy and compliance in aviation. It focuses on adapting campaigns for LinkedIn, Instagram, advertisements and emails while keeping facts consistent. The lab covers verified claims, platform-specific tone, compliance audits, peer review and human approval to prevent misleading promotions and false promises.
